@@ -1,0 +1,1 @@
+# NJE-BSc-SZAMARC1-assembly
